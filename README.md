@@ -1,3 +1,3 @@
 # sushiman
 Сайт Японской Кухни
-https://github.com/FreeFi/sushiman/assets/40234315/072b0c60-18e3-4a2d-8f2b-fc6886c0d011
+![msedge_XU3jIISC1G](https://github.com/FreeFi/sushiman/assets/40234315/375d2846-ef95-4488-a91d-886a7c9dae95)
